@@ -5,6 +5,7 @@ https://m.youtube.com/watch?v=8opsF7QMC0U
 https://kevin1230san.blogspot.com/2022/01/qr-codes.html
 https://free.qrd.by/d/o2ux3w/7/L/2/0
 https://qrd.by/o2ux3w
+http://www.link.gy/3c5d5
 <!--
 **Kevin1230san/Kevin1230san** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

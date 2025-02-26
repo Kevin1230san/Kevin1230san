@@ -15,6 +15,8 @@ Here are some ideas to get you started:
 -->
 Hope you subscribe https://cutt.ly/b0e38
 
+Rant about Everything - https://cutt.ly/rant
+
 Check out Sabaton https://cutt.ly/3b0ae
 
 Check out Angry Grandpa https://cutt.ly/730ad

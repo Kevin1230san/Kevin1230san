@@ -13,19 +13,19 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Hope you subscribe https://link.gy/b0e38
+Hope you subscribe https://cutt.ly/b0e38
 
-Check out Sabaton https://link.gy/3b0ae
+Check out Sabaton https://cutt.ly/3b0ae
 
-Check out Angry Grandpa https://link.gy/730ad
+Check out Angry Grandpa https://cutt.ly/730ad
 
-Check out Kid Behind the Camera https://link.gy/8a209
+Check out Kid Behind the Camera https://cutt.ly/8a208
 
-Check out Dkrack https://link.gy/8a3c8
+Check out Dkrack https://cutt.ly/8a3c8
 
-Check out Nuclear Blast Records https://link.gy/498fe
+Check out Nuclear Blast Records https://cutt.ly/498fe
 
-Hope you follow my Twitch https://link.gy/ed133
+Hope you follow my Twitch https://cutt.ly/ed133
 
 Bismarck - https://link.gy/ea81d
 

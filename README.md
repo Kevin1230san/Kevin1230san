@@ -27,40 +27,20 @@ Check out Nuclear Blast Records https://cutt.ly/498fe
 
 Hope you follow my Twitch https://cutt.ly/ed133
 
-Bismarck - https://link.gy/ea81d
+Bismarck - https://cutt.ly/4ZaiRel
 
-The Attack of the Dead Men - https://link.gy/d7c12
+The Attack of the Dead Men - https://cutt.ly/pZaiD3K
 
-The Last Stand - https://link.gy/f71a4
+The Last Stand - https://cutt.ly/FZaiXt9
 
-Uprising - https://link.gy/58139
+Uprising - https://cutt.ly/2ZaiNeg
 
-The Red Baron - https://link.gy/51d83
+The Red Baron - https://cutt.ly/fZaoact
 
-Great War - https://link.gy/b72ea
+Great War - https://cutt.ly/8Zaofvx
 
-Winged Hussars - https://link.gy/03ddd
+Winged Hussars - https://cutt.ly/GZaoh6L
 
-Fields of Verdun - https://link.gy/0716e
+Fields of Verdun - https://cutt.ly/fZaol00
 
-40:1 - https://link.gy/4c439
-
-Steam Account - https://link.gy/763d6
-
-BandLab The Red Baron - https://link.gy/014c0
-
-Dailymotion Account - https://link.gy/98178
-
-https://m.youtube.com/watch?v=Ac8i4IWGVBM
-
-https://www.reddit.com/r/livestreams/
-
-https://m.youtube.com/watch?v=8opsF7QMC0U
-
-https://kevin1230san.blogspot.com/2022/01/qr-codes.html
-
-https://free.qrd.by/d/o2ux3w/7/L/2/0
-
-https://qrd.by/o2ux3w
-
-http://www.link.gy/3c5d5
+40:1 - https://cutt.ly/sZaocmg
